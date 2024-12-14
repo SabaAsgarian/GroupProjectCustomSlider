@@ -1,6 +1,6 @@
 # GroupProjectCustumSlider
 
-- [Demo Project](https://sabaasgarian.github.io/GroupProjectCustomSlider/)
+- [Demo Projec](https://sabaasgarian.github.io/GroupProjectCustomSlider/)
 
   
 ![bot1](https://github.com/user-attachments/assets/f82288d7-db40-48d7-bd3d-1661bb12530e)
