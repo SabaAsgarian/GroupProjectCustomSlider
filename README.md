@@ -21,8 +21,8 @@
 - Role - Frontend
 
 
-- How to reach she(saba asgarian) : with my [instagram](https://instagram.com/saba_asgarian_web) and [linkedin](https://www.linkedin.com/in/saba-asgarian-69161088?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
+- How to reach (saba asgarian) : with my [instagram](https://instagram.com/saba_asgarian_web) and [linkedin](https://www.linkedin.com/in/saba-asgarian-69161088?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
   
-- How to reach me(zohre faraji) : with my [instagram](https://www.instagram.com/zohrefaraji212/) and [linkedin](https://www.linkedin.com/in/zohre-faraji-41822315a/)
+- How to reach (zohre faraji) : with my [instagram](https://www.instagram.com/zohrefaraji212/) and [linkedin](https://www.linkedin.com/in/zohre-faraji-41822315a/)
 
 
